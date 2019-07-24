@@ -9,9 +9,9 @@
 
 My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
-Link Tutorial Via Lucky Pacther : https://www.youtube.com/watch?v=RtLfl8IzzN4
-
-Link Tutorial Via Manual        : https://www.youtube.com/watch?v=IyPgAflzv28
+Link Tutorial Via Lucky Patcher : https://www.youtube.com/watch?v=RtLfl8IzzN4
+ 
+Link Tutorial Via Manual           : https://www.youtube.com/watch?v=IyPgAflzv28
 
 My Website    : https://hackingforlive.wordpress.com
 
