@@ -2,10 +2,10 @@
 
 # Creator @ Boychongzen aka Xroot
 
-# Cara Aktifkan Akun Trial 
+# Cara Aktifkan Akun Trial Via Akun Gmail
 ![be](https://raw.githubusercontent.com/boychongzen18/Akun-Trial-Popon/master/tambahkan%20akun.jpg)
 ![be](https://raw.githubusercontent.com/boychongzen18/Akun-Trial-Popon/master/google.jpg)
-![be](https://raw.githubusercontent.com/boychongzen18/Akun-Trial-Popon/master/kode.jpg)
+![be](https://raw.githubusercontent.com/boychongzen18/Akun-Trial-Popon/master/kode1.jpg)
 ![be](https://raw.githubusercontent.com/boychongzen18/Akun-Trial-Popon/master/sukses.jpg)
 # Akun Trial Popon 1 Bulan Full Version
 ![be](https://github.com/boychongzen18/Akun-Trial-Popon/blob/master/Owner.jpg)
