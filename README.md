@@ -2,6 +2,9 @@
 
 # Creator @ Boychongzen aka Xroot
 
+# Cara Aktifkan Akun Trial 
+![be](https://github.com/boychongzen18/Akun-Trial-Popon/blob/master/tambahkan akun.jpg)
+
 # Akun Trial Popon 1 Bulan Full Version
 ![be](https://github.com/boychongzen18/Akun-Trial-Popon/blob/master/Owner.jpg)
 ![be](https://github.com/boychongzen18/Akun-Trial-Popon/blob/master/member.jpg)
